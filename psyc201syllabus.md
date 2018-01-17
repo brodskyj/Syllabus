@@ -5,7 +5,7 @@
 ### Readings
 
 **Week 1**
-Milgram, S. *The Individual in a Social World*
+no readings THIS IS A CHANGE
 
 **Week 2**
 Stainton-Rogers, W. *Social Psychology: Critical and Experimental Approaches* Chapters 1 & 2 
